@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sanika 
+- 👀 I’m interested in Web Development and Software Development
+- 🌱 I’m currently studying in Final Year Btech
+- 📫 How to reach me https://www.linkedin.com/in/sanika-sutar-069394230sanika-sutar-069394230
